@@ -1,0 +1,1 @@
+Dobrý den pane učiteli... to co vám teď sem posílám bylo již vypracováno zpátky 12. dubna.. poslal jsem Vám snímky do chatu jak jste sám požadoval a nic jsem nemusel dodělávat.. rád bych si s Vámi promluvil v pátek 6.5. pokud na to budete mít jak Vy, tak i já čas..
